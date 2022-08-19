@@ -1,0 +1,13 @@
+♠️ ♠️ ♠️ ♠️ ♠️ ♠️ ♠️ ♠️ ♠️ ♠️ ♠️ ♠️ ♠️ ♠️ ♠️ ♠️ ♠️ ♠️ ♠️ ♠️ ♠️ ♠️ ♠️ ♠️ ♠️ ♠️ ♠️ ♠️ ♠️ ♠️ ♠️ ♠️ ♠️ 
+- Hi...?
+- I’m interested in drawing, video games, and coding... 
+- I'm an artist and I like to draw darker subjects for art.
+- I’m looking to collaborate on art and coding...
+- **Don't reach out to me pls unless you really want to please!**
+- I love call of duty mobile :D
+- I like the subject of **SCP's** *(thus the profile picture AKA 096)*
+- I love animals, My favorite animal is red and/or arctic fox.
+- My favorite colour is Blood Red...
+- I like to play card games such as: Uno, Garbage, War, and Poker
+- I want to learn how to make roblox games ;~;
+- ![Elmo meme ![image](https://user-images.githubusercontent.com/111449666/185664084-ddd04066-e640-4fdf-a876-6c3efc214d7a.png)
